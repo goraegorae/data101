@@ -9,10 +9,9 @@
 -------------
 
 #### 용산구
-실습 1 [통계학 입문]
+LAB 01
+https://mix.office.com/watch/1qqc2kqy3awnu
 
-[mix 제작중]
 #### 세종시
-실습 1 [통계학 입문]
-
-[mix 제작중]
+LAB 01
+https://mix.office.com/watch/j4wxwu8im2gb
