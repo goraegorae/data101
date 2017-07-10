@@ -8,10 +8,11 @@
 실습
 -------------
 
-#### 용산구
-LAB 01
-https://mix.office.com/watch/1qqc2kqy3awnu
-
-#### 세종시
 LAB 01
 https://mix.office.com/watch/j4wxwu8im2gb
+
+LAB 02
+https://youtu.be/VCCYH6YQweY
+
+LAB 03
+https://youtu.be/8s1D1Yxnz4A
