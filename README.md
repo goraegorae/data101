@@ -31,7 +31,7 @@ LAB 01
 https://mix.office.com/watch/j4wxwu8im2gb
 
 LAB 02
-https://youtu.be/VCCYH6YQweY
+https://youtu.be/_zTlnW8RKs8
 
 LAB 03
-https://youtu.be/8s1D1Yxnz4A
+https://youtu.be/aAr1H0aUoe4
